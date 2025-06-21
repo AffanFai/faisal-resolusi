@@ -1,2 +1,2 @@
 # faisal-resolusi
-resolusi 2023 menyimpan rencana belajar
+belajar dari nol untuk kaburajadulu
